@@ -1,4 +1,4 @@
-- Hugo Rafael de Lima
+- Hugo Rafael de Lima 🚀
 - Marcos Vinícios
 - Gustavo Vieira da Silva 🤘
 - Rayan Leite
